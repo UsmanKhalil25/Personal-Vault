@@ -1,0 +1,8 @@
+- Make bed every morning
+- 4 Namaz daily
+- 4 hours coding (minimum)
+- Stop wasting money on food and try to eat healthy
+- Hit the gym
+- Stop being stupid like your friends
+- Be kinder 
+- Work on your communication
